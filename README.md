@@ -1,4 +1,4 @@
-![image_alt](https://github.com/aamonpilled/aamonpilled/blob/49e72a8b297febf8621fa216b2102c3013de2267/Untitled3209.png)
+![image_alt](https://raw.githubusercontent.com/aamonpilled/aamonpilled/refs/heads/main/Untitled3577_20260528095940.png)
 
 > [!TIP]
 > it's better to be ~feared~ than *loved*, if you cannot **both**.
