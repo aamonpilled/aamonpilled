@@ -3,5 +3,6 @@
 > [!TIP]
 > it's better to be ~feared~ than *loved*, if you cannot **both**.
 
- [sign atabook](https://marcmarcel.atabook.org/)  ////  [me](https://rentry.co/dukepaxley)
+Aamon Paxley yumeshipper / Non Sharing! 
+ [sign atabook](https://marcmarcel.atabook.org/)  ////  [me](https://rentry.co/dukepaxley) 
  
